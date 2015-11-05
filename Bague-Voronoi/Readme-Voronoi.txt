@@ -1,0 +1,3 @@
+Tout le charme de la création numérique est mis en valeur sur ce modèle ciselé par les algorythmes de Voronoï, technique complexe que j'aime particulièrement pour ses effets spectaculaires sur les stuctures légères.
+
+All the charm of digital creation is highlighted on this model chiseled by the Voronoi algorithms, complex technique that I particularly like for its spectacular effects on small stuctures.
